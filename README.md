@@ -1,1 +1,0 @@
-"# NailChic_SanPablo" 
